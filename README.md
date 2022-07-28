@@ -1,0 +1,5 @@
+- 👋 oi eu sou o josé eduardo
+- 👀 estou muito interessado em conhecer a plataforma
+- 🌱 quero colaborar a plataforma
+- 💞️ pela minha professora katri
+- 
